@@ -24,10 +24,10 @@ How to make Veggie Lasagna
 
 
 There are a few components to putting together a Veggie Lasagna so we love that it makes a BIG batch and that it reheats 100% perfectly!
-1.Roast vegetables;
-2.Mix up ricotta and spinach;
-3.Make the simple tomato lasagna sauce;
-4.Layer the lasagna as follows:
+1. Roast vegetables;
+2. Mix up ricotta and spinach;
+3. Make the simple tomato lasagna sauce;
+4. Layer the lasagna as follows:
 
   Smear tomato on base (to stop lasagna sheets from sliding)
   
